@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TintGox
-- 👀 I’m interested in Friday Night Funkin'
+- 👀 I’m interested in Friday Night Funkin' & Roblox
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm a low quality drawing, because it's funny
 
